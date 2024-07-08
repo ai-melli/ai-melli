@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate with Software Tycoons.
 - 📫 How to reach me on jessicawayo4@gmail.com
 - 😄 Pronouns: she/her
-- ⚡ Fun fact I'm a Ghanaian look like an Asian.
+- ⚡ Fun fact:...
 
 <!---
 ai-melli/ai-melli is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
